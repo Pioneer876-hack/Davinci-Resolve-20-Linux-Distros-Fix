@@ -1,0 +1,1 @@
+# Davinci-Resolve-20-Linux-Distros-Fix
